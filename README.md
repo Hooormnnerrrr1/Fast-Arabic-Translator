@@ -1,0 +1,1 @@
+Fast Arabic Translator
